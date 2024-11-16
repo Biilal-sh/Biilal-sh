@@ -1,4 +1,5 @@
-![github-banner](https://github.com/user-attachments/assets/a5edf3c8-5403-4e55-bdcf-628f32081d38)
+![Untitled design](https://github.com/user-attachments/assets/25600646-bbb3-4fcb-8ff8-bd8960fe435b)
+
 
 
 - 👋 Hi, I’m Bilal Shaikh
